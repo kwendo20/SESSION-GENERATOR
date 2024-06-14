@@ -68,8 +68,8 @@ ______________________________________
 ╚════════════════════════╝
 ╔═════◇
 ║  『••• 𝗩𝗶𝘀𝗶𝘁 𝗙𝗼𝗿 𝗛𝗲𝗹𝗽 •••』
-║❒ *Ytube:* _youtube.com/@wasitech1
-║❒ *Owner:* _https://wa.me/message/THZ3I25BYZM2E1_
+║❒ *Ytube:* _youtube.com/@kwendo
+║❒ *Owner:* _254717407351_
 ║❒ *Repo:* _https://github.com/kwendo20/kwendo20_
 ║❒ *WaGroup:* _https://chat.whatsapp.com/ECskg7L0Dn4HAr7XFh2Trp_
 ║❒ *WaChannel:* _https://whatsapp.com/channel/0029VaDK8ZUDjiOhwFS1cP
